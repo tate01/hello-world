@@ -1,2 +1,3 @@
 # hello-world
 i am not sure what this is about but well...
+i need to write about myself. i have stopped figuring me out. i am figured out. from this point on, i act.
